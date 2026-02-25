@@ -1,5 +1,5 @@
 r# 💫 About Me:
-Allo :3<br>Saya Dyles Enserval Verbox<br>Panggilan: Verbox. <br><br>Ω Programmer Ototidak + Vibe Coder. Ω<br>╚ Paham Bahasa: Python, Scratch, Mblock, Arduino, XML ╗<br>◩ Dalam Proses Pemahaman Bahasa: Java, CSS, C++, C#, DLL ◪<br>⊱ Suka Ngoding<br>⊱ Ngoding Di Waktu Luang Atau Gabut (Paling Lama, Bisa ngoding 10 jam lebih)<br>⊱ Ngoding Disaat Belajar (Paling singkat, 4-6 jam)<br>⊱ Gak Perlu Coding Kepanjangan, Kalau Bisa Yang Pendek (OPTIMIZED CODE) 
+Allo :3<br>Saya Dyles Enserval Verbox<br>Panggilan: Verbox. <br><br>Ω Programmer Ototidak + Semi-Vibe Coder. Ω<br>╚ Paham Bahasa: Python, Scratch, Mblock, Arduino, XML ╗<br>◩ Dalam Proses Pemahaman Bahasa: Java, CSS, C++, C#, DLL ◪<br>⊱ Suka Ngoding<br>⊱ Ngoding Di Waktu Luang Atau Gabut (Paling Lama, Bisa ngoding 10 jam lebih)<br>⊱ Ngoding Disaat Belajar (Paling singkat, 4-6 jam)<br>⊱ Gak Perlu Coding Kepanjangan, Kalau Bisa Yang Pendek (OPTIMIZED CODE) 
 
 
 ## 🌐 Socials:
